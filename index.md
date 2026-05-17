@@ -5,7 +5,7 @@ layout: home
 hero:
   name: "中国药科大学资源平台    "
   text: "Learn in CPU"
-  tagline: 基于中国药科大学学生的生物制药专业课程的资料、科研工具与学习资源共享平台
+  tagline: 基于中国药科大学学生专业课程的资料、科研工具与学习资源共享平台
   actions:
     - theme: brand
       text: 进入课程资料
