@@ -57,15 +57,15 @@
 
 
 
-[学促会复习资料](https://pan.baidu.com/s/1vN42u9caSzPEVp2YSGbUDw?pwd=mkg2 提取码: mkg2)
+[学促会复习资料](https://pan.baidu.com/s/1vN42u9caSzPEVp2YSGbUDw?pwd=mkg2 )
 
-[笔记与知识点](https://pan.baidu.com/s/1E-8JiHMcwJ1o2prJtI_RcA?pwd=kiaj 提取码: kiaj)
+[笔记与知识点](https://pan.baidu.com/s/1E-8JiHMcwJ1o2prJtI_RcA?pwd=kiaj )
 
 [习题册及答案](https://pan.baidu.com/s/1v14zhIoXjWbTMOdO4Wz55A?pwd=13p5)
 
 [真题](https://pan.baidu.com/s/1xmEhw_prXmysnZIitTlzdw?pwd=9jw4)
 
-[教材习题答案](https://pan.baidu.com/s/17oa8HVQd-DLQlWmLf69OLw?pwd=rkj8 提取码: rkj8)
+[教材习题答案](https://pan.baidu.com/s/17oa8HVQd-DLQlWmLf69OLw?pwd=rkj8 )
 
 
 
@@ -77,7 +77,7 @@
 
 [题库](https://pan.baidu.com/s/1AJh2eHnm0s4Gtic4RmVDTw?pwd=ursn)
 
-[真题](https://pan.baidu.com/s/13XMQqu-6hQ_l-s_Uhm_iSA?pwd=5kc5 提取码: 5kc5)
+[真题](https://pan.baidu.com/s/13XMQqu-6hQ_l-s_Uhm_iSA?pwd=5kc5 )
 
 [知识点整理](https://pan.baidu.com/s/1NuSG5VNF3qZWYH6ruOmwug?pwd=pa3g)
 
@@ -147,7 +147,7 @@
 
 部分习题
 
-[XMIND思维导图](https://pan.baidu.com/s/1aHn2N8ZLvEzKTbdo5alkWQ?pwd=ibeq 提取码: ibeq)
+[XMIND思维导图](https://pan.baidu.com/s/1aHn2N8ZLvEzKTbdo5alkWQ?pwd=ibeq )
 
 [教材](https://pan.baidu.com/s/1WF2w4Azq0JzIZt3c269x7A?pwd=w13n)
 
@@ -187,4 +187,4 @@
 
 [知识点汇总](https://pan.baidu.com/s/1s00sORVPN5TbiQd4R58ekA?pwd=8ht4)
 
-[题库](https://pan.baidu.com/s/1Wv6MTZIxPzqxE3oOBQ64ww?pwd=76wa 提取码: 76wa)
+[题库](https://pan.baidu.com/s/1Wv6MTZIxPzqxE3oOBQ64ww?pwd=76wa )
